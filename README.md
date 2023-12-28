@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @rou26
 - 👀 I’m interested in MMA, Judo & Gym.
-- 🌱 I’m currently learning how to code, sos i can become a software developer.
+- 🌱 I’m currently learning how to code, so i can become a software developer.
 - 💞️ I’m looking to collaborate on any upcoming entry level fun projects.
 - 📫 How to reach me on instagram @rebekaugolor or via email: rebekaugolor@hotmail.com
 
